@@ -3,7 +3,6 @@ Tambiga weak
 
 
 
-6m Slam
-
+Bulawan gamay ug idoy!
 
 gwapo c tatads bayot bulawan. mu chupa og oten!
